@@ -1,1 +1,1 @@
-Panchita is the worst dog in the world!
+Panchita is the best worst dog in the world!
